@@ -1,4 +1,3 @@
-# my-contants<br />
 我QQ号又tm炸了，qswl<br />
 之前炸掉的号：<br />
 2455918902<br />
